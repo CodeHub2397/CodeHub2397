@@ -1,5 +1,5 @@
 ## 👋 Hello, I'm Ram Gupta!
-🚀 **Facilitator | [Your Expertise] | [Your Passion]**
+🚀 **Facilitator | AI/ML, Blockchain | [Your Passion]**
 
 🔹 Passionate about **[mention key skills/topics]**  
 🔹 Currently working on **[project name or company name]**  
