@@ -3,7 +3,7 @@
 
 🔹 Passionate about **[mention key skills/topics]**  
 🔹 Currently working on **[project name or company name]**  
-🔹 Open to collaborating on **[mention types of projects]**  
+🔹 Open to collaborating on **[mention types of projects]**  ..
 🔹 Learning **[any new technology or skill you're exploring]**  
 
 ---
